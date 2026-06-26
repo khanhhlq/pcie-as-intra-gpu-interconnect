@@ -13,7 +13,7 @@
 ## Link thuyết trình
 
 Video báo cáo nhóm:  
-https://youtu.be/NPu2KXvkF3E?si=31E8nOouJaONvYjV
+https://youtu.be/NPu2KXvkF3E
 
 ## Mục tiêu đề tài
 
